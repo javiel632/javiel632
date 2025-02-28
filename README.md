@@ -1,7 +1,7 @@
 HI 👋 I'M JAVIEL!!
 
 <a href="https://whatsapp.com/channel/0029VadQrNI8KMqo79BiHr3l">
- <img alt="ℙ𝕆ℙ𝕂𝕀𝔻 𝕄𝔻" height="300" src="https://i.ibb.co/9kQGvLgb/IMG-20250227-WA0037.jpg">
+ <img alt="🅹🅰🆅🅸🅴🅻 🅼🅳" height="300" src="https://i.ibb.co/h1TdTKg9/IMG-20250228-WA0044.jpg">
 
 
 
