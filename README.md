@@ -7,7 +7,7 @@ HI 👋 I'M JAVIEL!!
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=BLACK+OPS&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=𝐉𝐀𝐕𝐈𝐄𝐋+𝐀𝐋𝐖𝐀𝐘𝐒+𝐀𝐕𝐀𝐈𝐋𝐀𝐁𝐋𝐄+.......;CORDING+IS+MY+FAVORITE+😊......;+ALWAYS+RESPECT+WHOM+RESPECT+YOU+%F0%9F%AB%82%E2%9D%A4%EF%B8%8F%F0%9F%A6%8B;+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=BLACK+OPS&pause=1000&color=F70000&center=true&vCenter=true&width=435&lines=𝐉𝐀𝐕𝐈𝐄𝐋+𝐀𝐋𝐖𝐀𝐘𝐒+𝐀𝐕𝐀𝐈𝐋𝐀𝐁𝐋𝐄+.......;CORDING+IS+MY+FAVORITE+😊.....;+ALWAYS+RESPECT+WHOM+RESPECT+YOU+%F0%9F%AB%82%E2%9D%A4%EF%B8%8F%F0%9F%A6%8B;+)](https://git.io/typing-svg)
 
 
 
